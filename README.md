@@ -1,0 +1,1 @@
+# latsol-tka-ekonomi-pplg
